@@ -1,4 +1,4 @@
-#  
+#  new Ulysses for macOS Extension | note encryption + cloud backup is the best Ulysses for macOS extension, featuring note encryption and cloud backup. Safe, efficient, and
 
 
 
